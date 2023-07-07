@@ -6,7 +6,7 @@
 
 <h1 align="center">Hello 👋</h1>
 <p align="center">
-I'm IncorDev . A Programmer , who likes to make unblocked games sites!
+I'm IncorDev . A Programmer That Is Very Smart And Cool And Not A Skid And Owner Of Incorhosting And Owner Of Genny/Incor Class And Owner Of Incor Network X2, who likes to make unblocked games sites! 
 <br>
 Our Website is Up (BUT IS STILL IN MAINTAINENCE)
 </p>
